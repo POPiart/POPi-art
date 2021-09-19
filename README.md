@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @POPiart
-- 👀 I’m digital artist
+- 👀 I’m a digital artist
 - 🌱 I’m currently developing my own nft space
 - 📫 You can reach me through email: savvillas@gmail.com
 
